@@ -1,0 +1,2 @@
+# high
+Gunakan dengan bijak
